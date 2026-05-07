@@ -1,4 +1,4 @@
-
+Experience marvel rivals aim assist like never before with new Aim Assist for marvel rivals aim assist - unlimited sprint and ultimate cooldown reset, the #1 aim assist. Includes
 
 
 
